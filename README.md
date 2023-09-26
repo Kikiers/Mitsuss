@@ -11,7 +11,7 @@ If you saw me from ponytown then welcome as well ^^
 - I'm 19 years of age
 - Dating status: not looking for love anytime soon [but flirting is ok]
   -  [Where can u find me u may ask?]
-   I'm mostly with friends of by myself 
+   I'm mostly with friends or by myself 
    Feel free to cuddle and hide [C+H] I do not mind
  
    INTs
