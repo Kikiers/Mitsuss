@@ -6,7 +6,7 @@
 
 Basic Criteria 
 - But Yes Hello there if you a friend of mine welcome
-If you saw be from ponytown then welcome as well ^^
+If you saw me from ponytown then welcome as well ^^
 - I'm Kiki/Kikiers [real name] Katrina
 - I'm 19 years of age
 - Dating status: not looking for love anytime soon [but flirting is ok]
