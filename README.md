@@ -12,7 +12,6 @@ If you saw me from ponytown then welcome as well ^^
   -  [Where can u find me u may ask?]
    I'm mostly with friends or by myself 
    Feel free to cuddle and hide [C+H] I do not mind
-I'm taken so please treat me as a friend and a human being and nothing more 
  
    INTs and Cuds/Kisses/boops
   
