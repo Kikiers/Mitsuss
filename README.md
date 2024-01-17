@@ -2,7 +2,7 @@
   -I love Anime'Singing'and science 
 - 💪I'm Currently learning Anatomy atm [college]
 - I enjoy playing games in my free time
-- If you play PT read my [Patreon] :3
+- If you play PT read my [Rentry] :3
 
 Basic Criteria 
 - But Yes Hello there if you a friend of mine welcome
