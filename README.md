@@ -1,11 +1,7 @@
-- Hi, I’m @Mitsuss
-  -I love Anime'Singing'and science 
-- 💪I'm Currently learning Anatomy atm [college]
-- I enjoy playing games in my free time
-- If you play PT read my [Rentry] :3
+
 
 Basic Criteria 
-- But Yes Hello there if you a friend of mine welcome
+- Hello there if you a friend of mine welcome
 If you saw me from ponytown then welcome as well ^^
 - I'm Kiki/Kikiers
 - I'm 19 years of age
